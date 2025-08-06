@@ -1,1 +1,0 @@
-# Cc-vid-challenge-A2
